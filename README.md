@@ -21,6 +21,7 @@ Curso                   |        Ano de Conclusão
 | Letras                | 2025 |
 
 10. Tem ótimas recomendações de colegas **diversos**: product owners, scrum masters, desenvolvedores, designer e gerente. Algumas podem ser [consultadas aqui](https://www.linkedin.com/in/mariana-maciel-400b91174/details/recommendations/?detailScreenTabIndex=0).
+    
     >Durante o tempo em que trabalhei junto da Mariana, pude observar sua dedicação, atenção aos detalhes e comprometimento em fornecer resultados excepcionais. 
 Ela sempre se destacou pela sua capacidade excepcional de escrita e compreensão técnica. Sua habilidade em transformar informações complexas em textos claros e acessíveis é notável. Além disso, sua paixão pela língua portuguesa é evidente em cada projeto.
 Me impressionou seu compromisso em buscar a excelência em suas entregas, cumprindo com os prazos, mas também se esforçando para garantir a qualidade de seu trabalho.
