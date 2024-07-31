@@ -11,7 +11,7 @@
 8. Excelente professora: sua paixão por Letras se reflete no boletim escolar da sua auxiliar número um, Ananda.
 9. Almeja grande crescimento profissional através do desenvolvimento pessoal pelos estudos.
 
-    Curso               |        Ano de Conclusão
+Curso                   |        Ano de Conclusão
 ----------------------- | ------------------------
 | Direito               | 2017 |
 | Fundamentos de TW     | 2021 |
