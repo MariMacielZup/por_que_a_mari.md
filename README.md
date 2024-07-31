@@ -1,7 +1,7 @@
 # POR QUE CONSIDERAR A MARI UMA BOA PARTE DO TIME
 ## Agregar a Mari ao time é de grande valia por diversas razões descritas a seguir.
 
-1. Conta com a ajuda de **dois** auxiliares: Ananda e Caramelo. 
+1. Conta com a ajuda de **dois** auxiliares: Ananda, sua filha de 8 anos; e Caramelo, um gato com os olhos mais azuis do mundo. 
 2. Tem um desempenho ainda melhor quando assa os **melhores** cookies do mundo para beliscar durante o expediente.
 3. É comprometida e muito responsável.
 4. Em 3 anos de empresa, nunca entregou um atestado médico.
